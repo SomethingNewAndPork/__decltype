@@ -1,3 +1,0 @@
-# thedoor
-# thedoor
-# thedoor
